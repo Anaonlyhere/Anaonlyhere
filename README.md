@@ -24,7 +24,6 @@
 ⭐️ realism and cartoon art
 
 
-## 🖼️   
 
 ## 📫 Let's Connect  
 📧 Email: ana.kh1384@gmail.com 
