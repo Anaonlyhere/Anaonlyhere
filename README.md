@@ -1,16 +1,34 @@
-## Hi there 👋
+![IMG_2335](https://github.com/user-attachments/assets/aeb00bf7-8604-4bb4-a90f-af5d99411a22)# 🎨 [Ana Khodadadi] - Digital art portfolio
 
-<!--
-**Anaonlyhere/Anaonlyhere** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+## ✨ About Me  
+نقاش و طراح دیجیتال تازه کار با ادوبی فرسکو⭐️
 
-Here are some ideas to get you started:
+## 🖼️   نمونه کار ها
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### Featured Works  
+
+| Project | Description | Tools |  
+|---------|-------------|-------|  
+| [[IMG_2609](https://github.com/user-attachments/assets/829ba85d-497b-460f-9647-cb85f8d09b92)] | Ashkan Kagan | Adobe Fresco |  
+| [[image](https://github.com/user-attachments/assets/38885e79-1554-4e54-9db7-b584e6757b30)] | cartoon art | Adobe Fresco |  
+
+## 🛠️ Skills & Tools  
+
+⭐️ digital art
+
+
+⭐️ vector art 
+
+⭐️ portraits
+
+⭐️ realism and cartoon art
+
+
+## 🖼️   
+
+## 📫 Let's Connect  
+📧 Email: ana.kh1384@gmail.com 
+
+📱 Instagram: [@4riesraven](#)  
+
+> in Art, We make bondings. 
