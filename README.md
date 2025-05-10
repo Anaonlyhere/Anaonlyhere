@@ -1,4 +1,4 @@
-![IMG_2335](https://github.com/user-attachments/assets/aeb00bf7-8604-4bb4-a90f-af5d99411a22)# 🎨 [Ana Khodadadi] - Digital art portfolio
+ 🎨 [Ana Khodadadi] - Digital art portfolio
 
 ## ✨ About Me  
 نقاش و طراح دیجیتال تازه کار با ادوبی فرسکو⭐️
